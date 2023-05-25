@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tatyanathambiran
+- 👋 Hi, I’m @tatyanat
 - 🌱 I’m currently learning everything
  
 
